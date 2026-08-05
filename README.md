@@ -1,1 +1,1 @@
-Wer das liest ist g@y hahahahahahahhhahhahahhahahahahahahahahahhahahahahahahahaahahaha
+Wer das liest ist uncool hahahahahahahhhahhahahhahahahahahahahahahhahahahahahahahaahahaha
